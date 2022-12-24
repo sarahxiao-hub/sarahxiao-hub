@@ -1,5 +1,5 @@
 - Hi there, I’m Sarah Xiao!
-- I’m interested in UX/UI design & processing and would love to collaborate on related projects.
+- I’m interested in UX/UI design, processing, operations, business & software development and would love to collaborate on related projects.
 - I’m currently studying Business/Managerial Economics while constantly improving my skill set and developing side projects.
 - Feel free to reach me via Email at xiao2530@mylaurier.ca or on LinkedIn!
 
